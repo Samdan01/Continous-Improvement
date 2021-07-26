@@ -6,7 +6,7 @@
 
 👯 Request for what I  looking to collaborate on …
 
-🤔 I’m looking for help with 
+🤔 Requests for what I’m looking for help with 
 
-📫 How to reach me: …
+
 
