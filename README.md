@@ -2,7 +2,7 @@
 
 🔭 Describe what I am  currently working on 
 
-🌱 keep track of what I am currently learning 
+🌱 Keep track of what I am currently learning 
 
 👯 Request for what I  looking to collaborate on …
 
